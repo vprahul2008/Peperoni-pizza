@@ -1,0 +1,3 @@
+Today I am going to say how to do peperoni pizza.This pizza serves 10 people.
+
+A pizza party can be a great way to entertaina group of young people and to get them involved with cooking. As the dough needs some time to rise it is a good idea to prepare it in advanced (or use purchased pizza bases). At the times of the party lay out the ingredients for topping the pizzas and allow the guests to shape and top their own pizzas-you may be suprised at some of the combinations.
